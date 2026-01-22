@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AACB000619MMCLNRA3
+AACB000619MMCLNRA3
